@@ -7,4 +7,4 @@ Me chamo Ana Luiza
 - Swiftie com orgulho! *fã da maravilhosa cantora Taylor Swift*💗🎀
 - Adoro ler!
 
-![](https://tenor.com/pt-BR/view/hello-kitty-dear-daniel-sanrio-sanrio-love-kawaii-love-gif-7113076542894805684))
+![](https://media1.tenor.com/m/Yra5bddokrQAAAAC/hello-kitty-dear-daniel.gif)
